@@ -85,9 +85,9 @@ Serving all major areas across Long Island, New York.
 
 **Phone:** +1 (Your Phone Number)
 
-**Email:** [your@email.com](mailto:your@email.com)
+**Email:** [your@email.com](mailto:countrycoveinc@email.com)
 
-**Website:** https://yourwebsite.com
+**Website:** https://longislandballoonsdecor.com
 
 **Instagram:** @your_instagram
 
